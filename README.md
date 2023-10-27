@@ -4,4 +4,4 @@
 📫 How to reach me: paltman@gmail.com<p>
 📝 I blog at https://paltman.com<p>
   
-🪛 I'm currently building [Strongest](https://strongest.com)
+🪛 I work at [Wedgworth's, Inc](https://wedgwortb.com)
