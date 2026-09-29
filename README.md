@@ -5,4 +5,4 @@
 📝 I blog at https://wedgworth.dev<p>
 💥 Personal site at https://paltman.com
   
-🚜 I work at [Wedgworth's, Inc](https://wedgwortb.com)
+🚜 I work at [Wedgworth's, Inc](https://wedgworth.com)
